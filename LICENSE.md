@@ -1,4 +1,4 @@
-# 
+# Premium DaVinci Resolve pour PC outils est le meilleur DaVinci Resolve pour PC outils avec enregistrement et enregistrement audio. Sécurisé, fiable et optimisé pour des
 
 
 
